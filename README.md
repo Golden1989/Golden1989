@@ -1,4 +1,4 @@
-### heartbreak princess 😇
+### style kind of person ✌️😎
 
 - ⚙️I’m currently on college: computer engineering
 - 🖥️ I’m currently learning: C, C++, Java, Python, Java Script, Css, Html
